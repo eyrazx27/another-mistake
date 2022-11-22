@@ -14,3 +14,10 @@ kakayanin
 HAHAHAHHAHAHAHHAHAHAH
 mamamo
 :>>
+SIRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR
+tagal mag time oh
+lollipop
+mwuah eme
+huvigdvuygrygvbvrfyug
+miss ko na siya char
+nugagawen (2)
